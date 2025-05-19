@@ -1,1 +1,1 @@
-education purposes
+Education Purposes
